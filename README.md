@@ -1,5 +1,5 @@
 # Hey, I’m Bhaskar Metiya
-![](https://komarev.com/ghpvc/?username=bhaskar1001101&color=grey)
+[I'm interested in how computing works](https://zyzyzynn.xyz)
 
 
 <p align="center">
